@@ -7,4 +7,3 @@
 - 📫 How to reach me: Connect with me on LinkedIn! [https://www.linkedin.com/in/dedipyaman](https://linkedin.com/in/dedipyaman)
 - 😄 Read my blog at: [https://www.twodee.me](https:://twodee.me)
 - ⚡ Fun fact: When I am not writing code: I am usually driving, hitting the gym, composing rap or just taking a long nap.
--->
